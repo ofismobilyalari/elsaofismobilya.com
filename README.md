@@ -4,7 +4,7 @@
 
 1996 yılında mobilya üretimi için kurulan [eLsa](https://eksisozluk.com/entry/56254875), Rusya, Türkmenistan, Azerbeycan, Libya gibi ülkelere projeli mobilya projelerinde ismini duyurmuştur. 
 
-Firma kurucuları, mobilya imalatından ucun yıllar hizmet vermiş tecrübe sahibi kadrodan oluşmuştur. [Ofis mobilyası](https://www.elsaofismobilya.com/urunler/) üretiminde yeni tasarımlar yaparak sektörün önünü açan tasarımlar yapmışlardır. 1998 yılında, ilk defa laminat postforming sistemleri kurarak dayanıklı ofis masası ürünü piyasaya sürülmüştür. Malum cilalı ahşap malzeme ile üretilen ofis mobilyası hem çabuk çiziliyordu hemde imalat süresini oldukça uzatıyordu. Mobilya renklerinin sınırlı olmasıda cabasıydı.
+Firma kurucuları, mobilya imalatından ucun yıllar hizmet vermiş tecrübe sahibi kadrodan oluşmuştur. [Ofis mobilyası](https://elsaofismobilya.com/tr/urunlerimiz/) üretiminde yeni tasarımlar yaparak sektörün önünü açan tasarımlar yapmışlardır. 1998 yılında, ilk defa laminat postforming sistemleri kurarak dayanıklı ofis masası ürünü piyasaya sürülmüştür. Malum cilalı ahşap malzeme ile üretilen ofis mobilyası hem çabuk çiziliyordu hemde imalat süresini oldukça uzatıyordu. Mobilya renklerinin sınırlı olmasıda cabasıydı.
 
 Ofis masası çeşitlerinin yanısıra ofis koltuklarında da yeni tasarımlar eLsa tarafından yapılmıştır. Daha önceleri ahşap karkaslı olarak imal edilen [ofis koltukları](https://www.elsaofismobilya.com/ofis-koltuklari/) plastik baskılarla hem daha kullanışlı, dayanıklı hemde daha kullanışlı modellere dönüştürülmüştür.
 
