@@ -2,7 +2,7 @@
 [Ofis Mobilyaları Masa Koltuk Sandalye Fabrikası](https://www.elsaofismobilya.com/)  - İstanbul, TR
 ![ofis-mobilya-dekorasyon](https://www.elsaofismobilya.com/wp-content/uploads/ofis-dekorasyon-ve-ic-mimarlik.jpg)
 
-1996 yılında mobilya üretimi için kurulan [eLsa](https://eksisozluk.com/entry/56254875), Rusya, Türkmenistan, Azerbeycan, Libya gibi ülkelere projeli mobilya projelerinde ismini duyurmuştur. 
+1996 yılında mobilya üretimi için kurulan [eLsa](https://elsaofismobilya.com/hakkinda/), Rusya, Türkmenistan, Azerbeycan, Libya gibi ülkelere projeli mobilya projelerinde ismini duyurmuştur. 
 
 Firma kurucuları, mobilya imalatından ucun yıllar hizmet vermiş tecrübe sahibi kadrodan oluşmuştur. [Ofis mobilyası](https://elsaofismobilya.com/tr/urunlerimiz/) üretiminde yeni tasarımlar yaparak sektörün önünü açan tasarımlar yapmışlardır. 1998 yılında, ilk defa laminat postforming sistemleri kurarak dayanıklı ofis masası ürünü piyasaya sürülmüştür. Malum cilalı ahşap malzeme ile üretilen ofis mobilyası hem çabuk çiziliyordu hemde imalat süresini oldukça uzatıyordu. Mobilya renklerinin sınırlı olmasıda cabasıydı.
 
